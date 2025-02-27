@@ -1,3 +1,2 @@
 - hi, i’m @raitha8
-- currently doing chain analysis
 - reach me on twitter @66raitha99
